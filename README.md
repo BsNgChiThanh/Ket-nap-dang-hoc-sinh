@@ -5,12 +5,10 @@
 ### Từ nhiều thập kỷ nay, được đứng trong hàng ngũ đảng viên Đảng Cộng sản Việt Nam - đội tiên phong của giai cấp công nhân, Nhân dân lao động và của dân tộc luôn là lý tưởng cao đẹp, mục tiêu, động lực phấn đấu của nhiều thế hệ, trong đó có học sinh phổ thông. ###
 - Bằng nỗ lực, rèn luyện, phấn đấu, các em Nguyễn Lê Thái Bảo; Trần Quốc Toản; Bùi Nguyễn Thục Khanh, học sinh Trường THPT Đầm Dơi vừa vinh dự được kết nạp Đảng.
 Đối với các em, được đứng trong hàng ngũ của Đảng từ khi còn ngồi trên ghế nhà trường vừa là niềm vinh dự, tự hào, vừa là nguồn động viên, khích lệ rất lớn trước ngưỡng cửa tương lai.
-  - ![image](https://github.com/BsNgChiThanh/Ket-nap-dang-hoc-sinh/assets/82578024/d5353fbe-b631-40c6-af2c-62db462fd4a1)
   - ![image](https://github.com/BsNgChiThanh/Ket-nap-dang-hoc-sinh/assets/82578024/b08b6c0b-e49d-4ed4-8715-b3df24f66868)
   - (Thầy Nguyễn Ngọc Nguyên, phó Hiệu trưởng Trường THPT Đầm Dơi trao quyết định đảng viên cho Nguyễn Lê Thái Bảo)
-- Em Nguyễn Lê Thái Bảo, lớp 12T4, Trường THPT Đầm Dơi bày tỏ: “Để đạt thành quả như ngày hôm nay là một sự cố gắng và nỗ lực không ngừng, đầu tiên là phấn đấu học tập để đạt được những thành tích trong các cuộc thi, cấp tỉnh và cấp thành phố, tiếp đến là đạt học sinh giỏi ở trường và ở lớp, tôi rất vui khi đạt được kết quả như ngày hôm nay”.
-- Em Trần Quốc Toản lớp 12T4, Trường THPT Đầm Dơi chia sẽ: “Trải qua một số khó khăn, hôm nay em được kết nạp chính thức vào Đảng, em thấy rất là vui và vinh dự cho bản thân mình, là động lực cho quá trình sau này và trong tương lai”.
-  - ...
+- [Em Nguyễn Lê Thái Bảo, lớp 12T4](https://github.com/BsNgChiThanh/Ket-nap-dang-hoc-sinh/assets/82578024/79458419-beec-4b85-a5ab-3aa1cfcc4200), Trường THPT Đầm Dơi bày tỏ: “Để đạt thành quả như ngày hôm nay là một sự cố gắng và nỗ lực không ngừng, đầu tiên là phấn đấu học tập để đạt được những thành tích trong các cuộc thi, cấp tỉnh và cấp thành phố, tiếp đến là đạt học sinh giỏi ở trường và ở lớp, tôi rất vui khi đạt được kết quả như ngày hôm nay”.
+- [Em Trần Quốc Toản lớp 12T4](https://1drv.ms/f/s!Ao74wlrkLhtdpjPeimrZGmFzCXmb?e=L7sVZD), Trường THPT Đầm Dơi chia sẽ: “Trải qua một số khó khăn, hôm nay em được kết nạp chính thức vào Đảng, em thấy rất là vui và vinh dự cho bản thân mình, là động lực cho quá trình sau này và trong tương lai”.
 - Em Bùi Nguyễn Thục Khanh, học sinh lớp 12T5, chia sẽ: “Qua thời gian phấn đấu học tập hôm nay con được kết nạp vào Đảng, con cảm thấy rất là vui. Trong tương lai con sẽ cố gắng học tập và rèn luyện để xứng đáng là 1 đảng viên của Đảng Cộng sản Việt Nam”.
   - ![image](https://github.com/BsNgChiThanh/Ket-nap-dang-hoc-sinh/assets/82578024/8430e0d6-7a92-4b65-a9a5-b24a4d44e9cb)
   - (Em Bùi Nguyễn Thục Khanh đọc bản tuyên thệ trước ảnh Bác)
